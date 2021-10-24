@@ -1,0 +1,1 @@
+“Health is the perfect balance between man and his environment.”
